@@ -38,3 +38,14 @@ richieste almeno 2 bottiglie
 1. chiudere ermeticamente con un tappo. Fare attenzione che ci sia dello spazio per l'anidride carbonica che si formerà.
 1. fare fermentare per 12/24 ore a seconda del gusto e della temperatura dell'ambiente (il caldo accelera e il freddo rallenta la fermentazione). Ogni tanto fare sfiatare e richiudere se si pensa che la bottiglia possa rompersi.
 1. consumare a piacere e conservare in frigo per massimo una settimana se senza frutta, meno se con frutta.
+
+## Essicazione
+Procurarsi il luogo dedicato all'esicazione e della carta cucina assorbente della quantità adatta alla quantitàdi grani che si vuole essicare
+1. scolare i grani al meglio possibile, stando attenti a non romperli o schiacciarli
+1. distribuirli su uno o più fogli di carta assorbente
+1. coprilri con altra carta assorbente per protezione da polvere e insetti
+1. lasciare ascuigare i grani a temperatura ambiente fino a che non avranno preso forma e consistenza del sale grosso
+1. una volta essicati conservare i granuli in un contenitore ermetico posto in un luogo asciutto, lontano da fonti di calore e dai raggi diretti del sole
+### note
+- almeno una volta cambiare la carta assorbente
+- i grani essicati in questo modo durano 12/18 mesi
